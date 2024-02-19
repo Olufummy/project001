@@ -1,4 +1,4 @@
 # project001
 probably today
-i have no idea what i am doing 
+i have no idea 
  
